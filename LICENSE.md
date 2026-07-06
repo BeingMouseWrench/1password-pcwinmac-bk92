@@ -1,4 +1,4 @@
-# 
+# Nativo 1Password plantillas para Mac OS | Gratuito 1Password plantillas para PC Windows. Con modo juego y sincronización multiplataforma — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
